@@ -1,0 +1,1 @@
+This system is ideal for basic security needs, such as lockers, cabinets, or room doors. It provides a cost-effective and user-friendly way to enhance safety by replacing traditional mechanical locks with a password-protected electronic system.
